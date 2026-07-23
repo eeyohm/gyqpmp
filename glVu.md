@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时25分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国篮球联赛NBL总决赛落幕，陕西队时隔5年再度夺冠</h3><br><p>沪股通席位单日买入金风科技1亿，风电龙头获外资增持。<br><br> | 来源：<code>https;//857tysszbnba.com.cn
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>全国中医药服务覆盖所有社区，中医馆成为基层医疗标配。<br><br> | 来源：<code>https;//857tysszbnba.org.cn
+</code></p><br><br><h3>装配式建筑推广政策，装配式建筑标的全线异动</h3><br><p>泸州老窖放量上涨4.4%，国窖1573批价稳步上行。<br><br> | 来源：<code>https;//857tysszbzxgk.cn
+</code></p><br><br><h3>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热</h3><br><p>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道。<br><br> | 来源：<code>https;//857tysszbzxgk.com.cn
+</code></p><br><br><h3>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%</h3><br><p>四川路桥一带一路订单落地，前三季度业绩预增超40%。<br><br> | 来源：<code>https;//857tysszbzxgk.org.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖。<br><br> | 来源：<code>https;//857zqbsgw.cn
+</code></p><br><br><h3>国产大飞机C919批量交付，民航产业链标的上涨</h3><br><p>公募基金集中调研智慧交通标的，车路协同项目落地节奏。<br><br> | 来源：<code>https;//857zqbsgw.com.cn
+</code></p><br><br><h3>长三角一体化新规划落地，长三角本地股集体拉升</h3><br><p>海螺水泥成本控制能力：水泥行业龙头的长期盈利韧性。<br><br> | 来源：<code>https;//857zqbsgw.org.cn
+</code></p><br><br><h3>全国体育场馆免费或低收费开放，年接待群众超10亿人次</h3><br><p>全国工业企业利润同比增长8.7%，盈利水平持续修复。<br><br> | 来源：<code>https;//857zqbsmfzb.cn
+</code></p><br><br><h3>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善</h3><br><p>比亚迪AH股同步走强，量价配合下的交易机会分析。<br><br> | 来源：<code>https;//857zqbsmfzb.com.cn
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>全国小微企业贷款余额突破60万亿元，融资成本进一步下降。<br><br> | 来源：<code>https;//857zqbsmfzb.org.cn
+</code></p><br><br><h3>中天科技海缆+储能协同：多元化能源企业的成长逻辑</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https;//88tyssmfzb.cn
+</code></p><br><br><h3>二十国集团峰会召开，达成全球经济治理新共识</h3><br><p>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速。<br><br> | 来源：<code>https;//88tyssmfzb.org.cn
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>全球循环经济市场规模突破5万亿美元，资源利用效率提升。<br><br> | 来源：<code>https;//90fzzqbs.cn
+</code></p><br><br><h3>上半年全国战略性新兴产业增加值同比增长9.3%</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>https;//90fzzqbs.com.cn
+</code></p><br><br><h3>机构席位大额买入中国中铁6500万，基建龙头获长线布局</h3><br><p>恒力石化炼化盈利修复，前三季度业绩预增超35%。<br><br> | 来源：<code>https;//90fzzqbs.org.cn
+</code></p><br><br><h3>极端暴雨灾害预警，水利基建标的全线上涨</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>https;//90fzzqjsbf500.cn
+</code></p><br><br><h3>中际旭创再创历史新高，800G光模块份额超70%</h3><br><p>全国湿地保护率达55%，新增国家湿地公园超百个。<br><br> | 来源：<code>https;//90fzzqjsbf500.com.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>https;//90fzzqjsbf500.org.cn
+</code></p><br><br><h3>京沪高铁路网资产价值：核心高铁线路的长期盈利逻辑</h3><br><p>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨。<br><br> | 来源：<code>https;//90fzzqwgf.cn
