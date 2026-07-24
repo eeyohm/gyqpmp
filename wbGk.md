@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分07秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>林业碳汇交易政策，林业运营标的全线异动</h3><br><p>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练。<br><br> | 来源：<code>https://aiqingdaoluntanyongjiuyuming.org.cn
+</code></p><br><br><h3>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商</h3><br><p>全国PPI同比由负转正，工业企业盈利预期持续改善。<br><br> | 来源：<code>https://aiqingdaoluntanzaixianguankan.org.cn
+</code></p><br><br><h3>全球无人机市场规模突破1500亿美元，行业应用爆发</h3><br><p>煤层气开发利用政策，煤层气标的全线拉升。<br><br> | 来源：<code>https://aiqingdaoshouyeluntan.org.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金持续流入核心资产</h3><br><p>理想汽车单季盈利超20亿，新势力车企业绩超预期。<br><br> | 来源：<code>https://aiqingdaowangzhan.org.cn
+</code></p><br><br><h3>洋河股份异动拉升4.0%，梦之蓝系列动销超预期</h3><br><p>国内老年文旅市场升温，银发游订单同比增长70%。<br><br> | 来源：<code>https://aiqingdaowangzhi.org.cn
+</code></p><br><br><h3>新增开户数环比大增，互联网券商板块全线走强</h3><br><p>知名私募调研卫星互联网标的，低轨卫星组网计划披露。<br><br> | 来源：<code>https://aiqingdaoyazhou.org.cn
+</code></p><br><br><h3>小米汽车交付量超预期，小米汽车产业链全线爆发</h3><br><p>甘肃建投涨超3.0%，一带一路西北基建项目推进。<br><br> | 来源：<code>https://aiqingdaoyazhouluntan.org.cn
+</code></p><br><br><h3>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情</h3><br><p>海大集团饲料技术优势：水产饲料龙头的研发壁垒。<br><br> | 来源：<code>https://aiqingdaoyiluntanmianfeiluxian.org.cn
+</code></p><br><br><h3>投资是认知的变现：你永远赚不到超出自己认知范围的钱</h3><br><p>超200家机构到访数据要素龙头，数据确权商业模式落地。<br><br> | 来源：<code>https://aiqingdaoyongjiuyuming.org.cn
+</code></p><br><br><h3>全国青少年校园足球特色学校超3万所，足球人口快速增长</h3><br><p>全面降准叠加LPR下调，市场流动性环境显著优化。<br><br> | 来源：<code>https://aiqingdaoyuming.org.cn
+</code></p><br><br><h3>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩</h3><br><p>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界。<br><br> | 来源：<code>https://aiqingdaozuixinyuming.org.cn
+</code></p><br><br><h3>家电出口超预期：白电、厨电的海外市场增量空间</h3><br><p>1年期LPR下调5BP，实体经济融资成本稳步下行。<br><br> | 来源：<code>https://aiweinaiwang.com.cn
+</code></p><br><br><h3>坚果产品价格上涨5%，休闲食品龙头盈利改善</h3><br><p>意大利经济增速超预期，旅游业拉动经济强劲增长。<br><br> | 来源：<code>https://aiyeapp.cn
+</code></p><br><br><h3>楚天高速放量上涨2.0%，湖北区域车流量持续增长</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>https://aiyeapp.net.cn
+</code></p><br><br><h3>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光</h3><br><p>天邦食品涨超4.1%，养殖业务减亏效果显著。<br><br> | 来源：<code>https://aiyeguanfangrukou.net.cn
+</code></p><br><br><h3>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序</h3><br><p>江特电机触底反弹5.9%，锂盐价格企稳回升。<br><br> | 来源：<code>https://aiyeguanwang.net.cn
+</code></p><br><br><h3>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加</h3><br><p>拉美多国签署货币互换协议，减少对美元依赖。<br><br> | 来源：<code>https://aiyeshipin.com.cn
+</code></p><br><br><h3>浪潮信息高位震荡，算力主线的分歧与机会解析</h3><br><p>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先。<br><br> | 来源：<code>https://aiyeshipin.net.cn
+</code></p><br><br><h3>国务院出台6方面24条政策，进一步扩大对外开放</h3><br><p>中兴通讯算力布局：从通信设备到算力基础设施的拓展。<br><br> | 来源：<code>https://aiyeshipinapp.net.cn
+</code></p><br><br><h3>中国女排世界联赛总决赛夺冠，重返世界第一排名</h3><br><p>通威股份硅料产能优势：低成本产能释放下的行业格局。<br><br> | 来源：<code>https://aiyeshipinguanwang.net.cn
