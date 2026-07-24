@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分04秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>机构+北向合力买入兆易创新1.2亿，存储芯片标的获资金布局</h3><br><p>中国女子摔跤队世锦赛斩获3金，奥运备战实力强劲。<br><br> | 来源：<code>https://yin-se-shipin.com.cn
+</code></p><br><br><h3>海尔智家高端化布局：卡萨帝品牌的溢价能力解析</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>https://yin-wen.com.cn
+</code></p><br><br><h3>温氏股份禽畜双主业布局：养殖行业的稳健成长逻辑</h3><br><p>华为智选新车型发布，相关合作车企单日大涨。<br><br> | 来源：<code>https://yinghuakanfan.com.cn
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>招商银行股价修复，银行板块高股息属性获资金青睐。<br><br> | 来源：<code>https://yingkongtao.com.cn
+</code></p><br><br><h3>存款利率迎来新一轮下调，银行板块短期承压负债端改善</h3><br><p>全国统一大市场建设取得阶段性进展，流通成本下降15%。<br><br> | 来源：<code>https://yingshi91.cn
+</code></p><br><br><h3>西安马拉松开跑，穿越古城墙赛道吸引超3万跑者参与</h3><br><p>美联储降息后美债收益率下行，外资回流中国权益市场。<br><br> | 来源：<code>https://yinnanluannu.com.cn
+</code></p><br><br><h3>机构席位大额买入四川路桥1.3亿，区域基建龙头获长线布局</h3><br><p>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势。<br><br> | 来源：<code>https://yiqi-cao.com.cn
+</code></p><br><br><h3>高管团队集体增持短视频出海标的，合计增持超9000万</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>https://yiqicao17c.com.cn
+</code></p><br><br><h3>四川成渝放量上涨2.3%，区域路网业务持续向好</h3><br><p>实控人邀约收购中药创新药企业，溢价35%发起全面要约。<br><br> | 来源：<code>https://yiqicaomeiridasai.com.cn
+</code></p><br><br><h3>知名私募调研卫星互联网标的，低轨卫星组网计划披露</h3><br><p>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界。<br><br> | 来源：<code>https://yiqicaoshipin.com.cn
+</code></p><br><br><h3>科大讯飞高位震荡，分歧阶段的关键位与风控思路</h3><br><p>5年期LPR超预期下调，地产链迎来全面行情催化。<br><br> | 来源：<code>https://yiqicaozaixianguankan.com.cn
+</code></p><br><br><h3>5年期以上LPR大幅下调20BP，地产链板块全线异动</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>https://yiren-jiujiu.com.cn
+</code></p><br><br><h3>恒力石化异动拉升3.8%，炼化行业盈利边际改善</h3><br><p>暑期亲子游订单同比增长45%，研学旅行成为消费新热点。<br><br> | 来源：<code>https://yongbaoqingchun.com.cn
+</code></p><br><br><h3>大北农种业布局：转基因商业化下的种业龙头成长逻辑</h3><br><p>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新。<br><br> | 来源：<code>https://yongli-huanggong.com.cn
+</code></p><br><br><h3>韦尔股份异动拉升5.1%，CIS芯片需求回暖</h3><br><p>多地推出稳外贸新政，出口退税速度压缩至3个工作日内。<br><br> | 来源：<code>https://youren-de-feixing.com.cn
+</code></p><br><br><h3>海绵城市建设推广，海绵城市板块集体上涨</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>https://youshuiruoruo.com.cn
+</code></p><br><br><h3>国内AI产业规模破2万亿，年增速超35%成经济新引擎</h3><br><p>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台。<br><br> | 来源：<code>https://youyoushipin.com.cn
+</code></p><br><br><h3>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放</h3><br><p>超180家机构到访汽车轻量化标的，一体化压铸产能释放。<br><br> | 来源：<code>https://yuan-qiansui.com.cn
+</code></p><br><br><h3>中国游泳队世锦赛斩获7金，打破3项世界纪录</h3><br><p>时代新材放量上涨4.0%，轨道交通零部件订单高增。<br><br> | 来源：<code>https://yuan-shen-benzi.com.cn
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>科技成长行情延续：AI算力、半导体、光模块的景气度排序。<br><br> | 来源：<code>https://yuan-shenbenzi.com.cn
