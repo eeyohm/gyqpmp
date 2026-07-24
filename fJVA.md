@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>山西汾酒涨超5.1%，青花系列全国化推进加速</h3><br><p>上半年全国文旅消费总额突破3万亿元，同比增长22%。<br><br> | 来源：<code>https://aiyeshipin.com.cn
+</code></p><br><br><h3>隆基绿能涨超5.7%，HPBC组件出货量爆发</h3><br><p>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增。<br><br> | 来源：<code>https://aiyeshipin.net.cn
+</code></p><br><br><h3>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>https://aiyeshipinapp.net.cn
+</code></p><br><br><h3>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元</h3><br><p>海天味业涨超3.5%，调味品行业需求复苏。<br><br> | 来源：<code>https://aiyeshipinguanwang.net.cn
+</code></p><br><br><h3>卫星互联网频率分配落地，卫星制造板块集体上涨</h3><br><p>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧。<br><br> | 来源：<code>https://aiyeshipinwangzhan.net.cn
+</code></p><br><br><h3>派能科技户用储能电池技术：全球户用储能龙头的壁垒</h3><br><p>仓位管理是生存之本：满仓梭哈的人，迟早会被市场淘汰。<br><br> | 来源：<code>https://aiyeshipinxiazai.net.cn
+</code></p><br><br><h3>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅</h3><br><p>恒力石化炼化一体化布局：民营大炼化龙头的盈利韧性。<br><br> | 来源：<code>https://aiyewangyeban.net.cn
+</code></p><br><br><h3>短剧行业监管规范落地，短剧板块情绪修复走强</h3><br><p>葡萄牙经济增速达2.3%，旅游业持续拉动增长。<br><br> | 来源：<code>https://aiyewangzhan.net.cn
+</code></p><br><br><h3>杭州亚运会场馆全面开放，年接待市民游客超千万人次</h3><br><p>大运河国家文化公园全面建成，沿线文旅融合项目超千个。<br><br> | 来源：<code>https://aiyexiazai.net.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速。<br><br> | 来源：<code>https://akeelahandthebee.com.cn
+</code></p><br><br><h3>中国毽球队世界杯包揽全部冠军，民间运动走向世界舞台</h3><br><p>全国水土流失治理面积年度完成6万平方公里，生态修复提速。<br><br> | 来源：<code>https://anquye.com.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势</h3><br><p>中国交建海外订单落地，前三季度业绩预增超18%。<br><br> | 来源：<code>https://anzhailala.com.cn
+</code></p><br><br><h3>零跑汽车异动拉升7.9%，性价比车型销量爆发</h3><br><p>建筑光伏一体化政策，BIPV标的全线拉升。<br><br> | 来源：<code>https://anzhuohuangyou.com.cn
+</code></p><br><br><h3>央行下调MLF利率10BP，货币政策宽松力度加大</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>https://aocai-2448442-net.com
+</code></p><br><br><h3>国内文创产品市场规模破千亿，故宫文创年营收超20亿</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>https://app-188-net.com.cn
+</code></p><br><br><h3>全国工业余热利用项目大规模落地，年节能超千万吨标准煤</h3><br><p>实控人溢价25%增持电力现货交易标的，传递价值低估信号。<br><br> | 来源：<code>https://app-biwei-vip.com.cn
+</code></p><br><br><h3>中国中车异动拉升3.2%，动车组新车型交付加速</h3><br><p>大金重工塔筒出口翻倍，单季业绩预告超预期。<br><br> | 来源：<code>https://app-by-sports.com.cn
+</code></p><br><br><h3>国家集采冠脉支架降价后，全国手术量同比增长30%惠及患者</h3><br><p>东方财富互联网券商优势：流量变现的长期成长空间。<br><br> | 来源：<code>https://app-ml-tiyu.com.cn
+</code></p><br><br><h3>智能制造政策升级，机器人自动化板块集体上涨</h3><br><p>核电新项目审批重启，核电产业链标的全线拉升。<br><br> | 来源：<code>https://aqdav.org.cn
+</code></p><br><br><h3>社保基金新进汽车座椅龙头，布局汽车轻量化赛道</h3><br><p>外资持续流入浪潮信息，AI服务器龙头外资持仓占比突破3%。<br><br> | 来源：<code>https://ba-geheiliao.com.cn
