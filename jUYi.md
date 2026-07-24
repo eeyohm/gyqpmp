@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分13秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>锂价连续反弹15%，锂矿板块迎来趋势性行情启动</h3><br><p>登海种业玉米种子优势：国内玉米种子赛道的龙头价值。<br><br> | 来源：<code>whutzhaotian.cn
+</code></p><br><br><h3>新希望全产业链布局：从饲料到养殖的协同优势解析</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>www.asiaillustrator.com
+</code></p><br><br><h3>科大讯飞AI技术落地：从技术研发到商业化变现的拐点</h3><br><p>工业母机龙头登陆北交所，五轴机床市占率国内第一。<br><br> | 来源：<code>www.dearain.cn
+</code></p><br><br><h3>粤高速A异动拉升2.6%，大湾区车流量高增</h3><br><p>1年期LPR下调降低企业短期融资成本，经营活力提升。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>基金公司集体到访氢能龙头，燃料电池车推广进度超预期。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>头部机构组团到访医美耗材龙头，新品获批进度超预期</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>坚果产品价格上涨5%，休闲食品龙头盈利改善</h3><br><p>蚝油产品价格上调3%，调味品全产业链盈利优化。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>全国重点海域入海排污口整治完成，海洋污染源头管控加强</h3><br><p>北方稀土稀土全产业链布局：国内稀土龙头的政策红利。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>国电南瑞电网自动化高增，单季业绩预告超预期</h3><br><p>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>国内主题乐园暑期营收同比增长75%，亲子游成核心主力</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>全国黄土高原水土流失治理率达70%，黄河泥沙含量锐减。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>国家文化数字化战略落地，文化资源线上共享覆盖全民</h3><br><p>中国平安权重护盘，大金融板块托底A股指数。<br><br> | 来源：<code>www.husini.cn
+</code></p><br><br><h3>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放</h3><br><p>国内低空文旅项目升温，热气球、滑翔伞体验订单同比暴涨。<br><br> | 来源：<code>www.cnjinrong.cn
+</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>社保基金新进重仓股，社保持仓标的集体异动。<br><br> | 来源：<code>www.60gm.cn
+</code></p><br><br><h3>国产EDA龙头登陆科创板，核心技术打破海外垄断引市场关注</h3><br><p>海产品全产业链涨价，水产板块全面异动。<br><br> | 来源：<code>www.gdlyh.cn
+</code></p><br><br><h3>国家统计局发布新动能指数，同比增长17%创新高</h3><br><p>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野。<br><br> | 来源：<code>www.feiyiban.cn
+</code></p><br><br><h3>外资持续流入万科A，地产龙头外资持仓占比突破2%</h3><br><p>中国中车全球轨道交通布局：一带一路带来的增量空间。<br><br> | 来源：<code>www.zygxlt.com
+</code></p><br><br><h3>外资单日扫货恒瑞医药9亿，创新药龙头外资持仓回升</h3><br><p>服务贸易创新发展试点，服务贸易板块集体上涨。<br><br> | 来源：<code>www.xiangleiboy.com
+</code></p><br><br><h3>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>www.cameey.com
+</code></p><br><br><h3>超220家机构到访AI教育龙头，付费用户规模环比大增</h3><br><p>超220家机构到访AI教育龙头，付费用户规模环比大增。<br><br> | 来源：<code>www.vin114.com
