@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>两融余额创阶段新高，券商杠杆业务标的异动</h3><br><p>中际旭创再创历史新高，800G光模块份额超70%。<br><br> | 来源：<code>https://yazhoujingpinwang.com.cn
+</code></p><br><br><h3>恒力石化炼化盈利修复，前三季度业绩预增超35%</h3><br><p>海天味业涨超3.5%，调味品行业需求复苏。<br><br> | 来源：<code>https://yazhoujingpinyiqu.com.cn
+</code></p><br><br><h3>机构专用席位净买入韦尔股份1.5亿，CIS芯片龙头获长线加仓</h3><br><p>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持。<br><br> | 来源：<code>https://yazhoujingpinyiquerqu.com.cn
+</code></p><br><br><h3>大股东承诺6个月内不减持氢能标的，释放稳定股价信号</h3><br><p>蒙牛乳业低温奶布局：乳制品行业第二增长曲线解析。<br><br> | 来源：<code>https://yazhousese.cn
+</code></p><br><br><h3>重庆洪崖洞暑期客流创新高，网红打卡点日均接待超15万</h3><br><p>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入。<br><br> | 来源：<code>https://yazhouwuma.com.cn
+</code></p><br><br><h3>制造业PMI连续6个月位于扩张区间，行业景气度持续回升</h3><br><p>养老金入市比例提升，养老金重仓标的走强。<br><br> | 来源：<code>https://yazhouyi-qu.com.cn
+</code></p><br><br><h3>长缆科技异动拉升4.3%，高压电缆需求回暖</h3><br><p>全国新能源装机容量突破21亿千瓦，占总装机比重超52%。<br><br> | 来源：<code>https://yazhouyiji.com.cn
+</code></p><br><br><h3>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划</h3><br><p>生猪价格突破18元/公斤，养殖板块盈利拐点显现。<br><br> | 来源：<code>https://yazhouyiqu.com.cn
+</code></p><br><br><h3>中国神华创阶段新高2.8%，高股息属性持续获资金追捧</h3><br><p>证监会启动全面注册制优化改革，提升资本市场包容性。<br><br> | 来源：<code>https://yazhouzipai.org.cn
+</code></p><br><br><h3>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生</h3><br><p>北向资金大幅增持比亚迪，AH股同步获外资加仓。<br><br> | 来源：<code>https://yeye-lu.com.cn
+</code></p><br><br><h3>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧</h3><br><p>龙江交通放量上涨1.8%，东北区域车流量边际改善。<br><br> | 来源：<code>https://yiben-dao.com.cn
+</code></p><br><br><h3>国内大模型人才缺口破百万，AI相关专业毕业生供不应求</h3><br><p>电力辅助服务市场扩容，储能运营标的全线异动。<br><br> | 来源：<code>https://yihao-ent-pro.com.cn
+</code></p><br><br><h3>全国国家公园数量增至15个，保护面积超23万平方公里</h3><br><p>政策性降息支持汽车消费，新能源汽车板块迎来定向利好。<br><br> | 来源：<code>https://yin-qi.com.cn
+</code></p><br><br><h3>国内邮轮市场重启，首艘国产大型邮轮首航票售罄</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>https://yin-wen-se-shuo.com
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>高股息板块持续受宠：银行、保险、煤炭的配置价值分析。<br><br> | 来源：<code>https://yindi-jia.com.cn
+</code></p><br><br><h3>东方电缆海缆订单爆发，前三季度业绩预增超70%</h3><br><p>全球半导体产业周期复苏，销售额同比增长18%创历史新高。<br><br> | 来源：<code>https://yinghuashipinwang.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧</h3><br><p>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%。<br><br> | 来源：<code>https://yingshi-zaixian.com.cn
+</code></p><br><br><h3>锂价连续反弹15%，锂矿板块迎来趋势性行情启动</h3><br><p>全国食品安全抽检合格率达99.8%，从源头保障国民健康。<br><br> | 来源：<code>https://yingtao-app.com.cn
+</code></p><br><br><h3>合肥推出“科里科气”文旅线路，科技研学游订单暴涨</h3><br><p>高管团队集体增持短视频出海标的，合计增持超9000万。<br><br> | 来源：<code>https://yinwang91.cn
+</code></p><br><br><h3>全国马拉松赛事超500场，全年参赛人次破700万</h3><br><p>万华化学MDI价格反弹，单季业绩预告超预期。<br><br> | 来源：<code>https://yiqic.com.cn
