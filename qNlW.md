@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国二手车交易量上半年突破1000万辆，流通市场活跃</h3><br><p>中微公司放量拉升6.2%，刻蚀设备订单持续落地。<br><br> | 来源：<code>https://chengren-wangzhan.com.cn
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>比亚迪Q3销量破百万，业绩预告同比翻倍。<br><br> | 来源：<code>https://chengrenbandouyin.cn
+</code></p><br><br><h3>全国京津冀生态环境联建联防联治，空气质量同比改善10%</h3><br><p>中国中铁一带一路订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://chengrencn.cn
+</code></p><br><br><h3>瑞典经济走出负增长，科技产业拉动复苏</h3><br><p>大模型在新闻领域应用，AI生成快讯占比超60%。<br><br> | 来源：<code>https://chengrendongman.cn
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>白银价格单月上涨12%，贵金属板块集体异动。<br><br> | 来源：<code>https://chengrendouman-zh.com.cn
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>宁德时代商业模式拆解：动力电池龙头的护城河有多深。<br><br> | 来源：<code>https://chengrendouyin.com.cn
+</code></p><br><br><h3>比亚迪AH股同步涨超6%，6月销量数据超预期</h3><br><p>全国红色旅游暑期人次破3亿，年轻人占比超60%。<br><br> | 来源：<code>https://chengrenduanshipin.cn
+</code></p><br><br><h3>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%</h3><br><p>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张。<br><br> | 来源：<code>https://chengrenhuangyou.com.cn
+</code></p><br><br><h3>亿纬锂能储能订单爆发，前三季度业绩预增90%</h3><br><p>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东。<br><br> | 来源：<code>https://chengrenjiaoyu.com.cn
+</code></p><br><br><h3>哪吒汽车涨超7.3%，下沉市场份额持续提升</h3><br><p>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张。<br><br> | 来源：<code>https://chengrenjingpin.com.cn
+</code></p><br><br><h3>半导体产业扶持基金落地，大基金二期标的全线拉升</h3><br><p>中航沈飞军机订单饱满，单季业绩预告超预期。<br><br> | 来源：<code>https://chengrenjiujiu.com.cn
+</code></p><br><br><h3>镍价单月上涨11%，不锈钢板块迎来涨价催化</h3><br><p>恒力石化炼化盈利修复，前三季度业绩预增超35%。<br><br> | 来源：<code>https://chengrenmanhuawang.com.cn
+</code></p><br><br><h3>“双减”成效显著，校外违规培训机构清零率超98%</h3><br><p>大模型在建筑领域应用，BIM模型生成效率提升4倍。<br><br> | 来源：<code>https://chengrenmianfeiwangzhan.com.cn
+</code></p><br><br><h3>国内音乐节市场爆发，上半年演出场次同比增长150%</h3><br><p>中俄双边贸易额上半年突破1200亿美元，创历史新高。<br><br> | 来源：<code>https://chengrenshipinzaixianguankan.com.cn
+</code></p><br><br><h3>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓</h3><br><p>三星堆博物馆新馆全面开放，单日最大接待量突破5万人次。<br><br> | 来源：<code>https://chengrenwang.com.cn
+</code></p><br><br><h3>全国碳捕集利用与封存项目年处理能力突破1500万吨</h3><br><p>定向降息支持绿色电力，绿电运营板块获定向利好。<br><br> | 来源：<code>https://chengrenwangwang.com.cn
+</code></p><br><br><h3>全国登山健身大会覆盖百座名山，参与人次破500万</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://chengrenyingyuanwang.com.cn
+</code></p><br><br><h3>贵州茅台站稳1700元关口，白酒板块估值修复开启</h3><br><p>杀菌剂价格上调10%，农药细分板块迎来行情。<br><br> | 来源：<code>https://chengrenzaixian-zh.com.cn
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>北方华创涨超6.3%，半导体设备国产替代进度提速。<br><br> | 来源：<code>https://chengrenzaixian.com.cn
+</code></p><br><br><h3>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓</h3><br><p>周期品沿趋势上行：黄金、有色、钢铁的业绩弹性对比。<br><br> | 来源：<code>https://chengrenzhibo-zh.com.cn
