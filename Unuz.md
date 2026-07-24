@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破</h3><br><p>国产音乐综艺全网播放量突破200亿，原创音乐人才涌现。<br><br> | 来源：<code>https://jinmantiantangwangyeban.com.cn
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>https://jinmantiantangwangyebanlianjie.com.cn
+</code></p><br><br><h3>海外对冲基金集中调研CXO龙头，新签订单增速超预期</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>https://jinmantiantangzaixian.com.cn
+</code></p><br><br><h3>全国青少年体育赛事覆盖所有项目，参赛人次突破千万</h3><br><p>全球碳交易市场规模突破5000亿美元，助力双碳目标。<br><br> | 来源：<code>https://jinmantiantangzaixianguankan.com.cn
+</code></p><br><br><h3>全国冰雪运动参与人数突破3亿，带动冰雪产业规模超8000亿</h3><br><p>中国男子帆船队亚运会夺冠，水上项目实现新突破。<br><br> | 来源：<code>https://jinmantianwang.com.cn
+</code></p><br><br><h3>天赐材料电解液成本控制：行业龙头的规模优势解析</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>https://jinmanwang.com.cn
+</code></p><br><br><h3>政策性降息支持保障性住房建设，保障房产业链受益</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>https://jinpiantiantang.com.cn
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>全国地下水超采综合治理成效显著，水位回升超2米。<br><br> | 来源：<code>https://jinpingmei-new.com.cn
+</code></p><br><br><h3>中国女子柔道队世锦赛斩获2金，奥运备战扎实推进</h3><br><p>福耀玻璃全球汽车玻璃布局：细分赛道全球龙头的壁垒。<br><br> | 来源：<code>https://jinpingmei-web.com.cn
+</code></p><br><br><h3>商汤日日新大模型4.0上线，智慧城市场景落地超百城</h3><br><p>宁德时代Q3净利润同比增长70%，大超市场预期。<br><br> | 来源：<code>https://jinri-tongrenku.com.cn
+</code></p><br><br><h3>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增</h3><br><p>机构资金集中买入华域汽车7800万，零部件龙头获抱团。<br><br> | 来源：<code>https://jinritong.com.cn
+</code></p><br><br><h3>超190家机构到访储能电池标的，海外户储订单超预期</h3><br><p>全国登山健身大会覆盖百座名山，参与人次破500万。<br><br> | 来源：<code>https://jinritongrenku.com.cn
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>全国老字号品牌超万家，国潮复兴带动传统产业转型升级。<br><br> | 来源：<code>https://jinsique.org.cn
+</code></p><br><br><h3>2026年暑期文旅总收入突破2万亿，创历史同期新高</h3><br><p>中际旭创客户优势：全球云厂商的深度绑定合作关系。<br><br> | 来源：<code>https://jintiantangman.cn
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>荣盛石化涨超4.1%，新材料业务贡献新增量。<br><br> | 来源：<code>https://jiqing-wangzhan.com.cn
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>天齐锂业触底反弹，超跌后的修复空间测算。<br><br> | 来源：<code>https://jiu-jiu-shipin.com.cn
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>https://jiu-jiujiu.com.cn
+</code></p><br><br><h3>全国城市马拉松赛事数量突破1500场，覆盖所有省份</h3><br><p>全球5G用户突破30亿，中国市场占比超一半。<br><br> | 来源：<code>https://jiu-seshipin.com.cn
+</code></p><br><br><h3>半导体产业扶持基金落地，大基金二期标的全线拉升</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>https://jiu-you-tiyu.com.cn
+</code></p><br><br><h3>周期品沿趋势上行：黄金、有色、钢铁的业绩弹性对比</h3><br><p>北向资金连续增持核电设备龙头，近1月持仓增幅超25%。<br><br> | 来源：<code>https://jiu-you-yule.com.cn
