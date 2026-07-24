@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内宠物友好景区破千家，携宠游订单同比增长180%</h3><br><p>国内宠物友好景区破千家，携宠游订单同比增长180%。<br><br> | 来源：<code>https://qingqingcao.com.cn
+</code></p><br><br><h3>赣锋锂业回收业务布局：锂电回收的长期成长空间解析</h3><br><p>大模型在物流领域应用，路径规划效率提升30%。<br><br> | 来源：<code>https://qinwenjiejie.net.cn
+</code></p><br><br><h3>AI语音合成技术突破，克隆声音仅需3秒样本</h3><br><p>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。<br><br> | 来源：<code>https://qitianda-xing.com.cn
+</code></p><br><br><h3>大消费板块估值修复：白酒、家电、医药的布局机会对比</h3><br><p>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客。<br><br> | 来源：<code>https://qiu-xia-yingyuan.com.cn
+</code></p><br><br><h3>中国船舶涨超4.5%，造船行业订单持续饱满</h3><br><p>F1中国大奖赛上海站落幕，周冠宇获本土最佳第四名创历史。<br><br> | 来源：<code>https://rcstqm.cn
+</code></p><br><br><h3>紫金矿业创阶段新高，黄金有色板块沿趋势上行</h3><br><p>自动驾驶大模型落地，城市NOA覆盖全国所有城市道路。<br><br> | 来源：<code>https://reg-bonus-vip.com.cn
+</code></p><br><br><h3>郑钦文闯入温网女单决赛，创中国网球选手大满贯单打最佳战绩</h3><br><p>江铃汽车异动拉升4.2%，轻卡新能源化加速。<br><br> | 来源：<code>https://ren-shan-jiao.com.cn
+</code></p><br><br><h3>全国文化产业园区超3000家，集聚效应带动创意产业发展</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>https://renqilieren.com.cn
+</code></p><br><br><h3>创新药医保谈判落地，创新药板块迎来情绪修复</h3><br><p>机构+北向合力买入思源电气5200万，电网设备标的布局。<br><br> | 来源：<code>https://renqiwuliaodonghua.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>固德威放量上涨7.2%，户用储能业务爆发式增长。<br><br> | 来源：<code>https://ri-han-wuma.com.cn
+</code></p><br><br><h3>丹麦经济稳健增长，风电产业全球领先</h3><br><p>中芯国际放量突破平台，短线多头力量持续增强。<br><br> | 来源：<code>https://ri-han-zhongwenzimu.com.cn
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>https://ri-hanjingpin.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>金龙汽车涨超3.6%，新能源客车订单持续落地。<br><br> | 来源：<code>https://ri-hanoumei.com.cn
+</code></p><br><br><h3>洽洽食品坚果业务高增，前三季度业绩预增超30%</h3><br><p>全国社会体育指导员超300万人，指导群众科学健身。<br><br> | 来源：<code>https://ri-hanwuma.com.cn
+</code></p><br><br><h3>当升科技涨超5.1%，正极材料海外订单增长</h3><br><p>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复。<br><br> | 来源：<code>https://ri-hanzaixianguankan.com.cn
+</code></p><br><br><h3>全国文化产业园区超3000家，集聚效应带动创意产业发展</h3><br><p>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大。<br><br> | 来源：<code>https://riben-chengren-shipin.com.cn
+</code></p><br><br><h3>小米小爱大模型升级，全场景智能互联覆盖亿级设备</h3><br><p>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场。<br><br> | 来源：<code>https://riben-yiquerqu.com.cn
+</code></p><br><br><h3>国产大模型出海加速，东南亚市场份额突破30%</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>https://ribenlifan.com.cn
+</code></p><br><br><h3>海康威视AI转型进展：传统安防龙头的第二成长曲线</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>https://ribenwuma.org.cn
+</code></p><br><br><h3>通用航空机场建设规划，通航运营板块集体上涨</h3><br><p>两融余额创阶段新高，券商杠杆业务标的异动。<br><br> | 来源：<code>https://ribenyiji.com.cn
