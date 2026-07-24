@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>福建高速异动拉升2.2%，海西地区车流量回暖</h3><br><p>润和软件涨超7.2%，鸿蒙生态业务落地加速。<br><br> | 来源：<code>https://jiujiujiujingpin.com.cn
+</code></p><br><br><h3>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张</h3><br><p>OpenAI发布多模态大模型，AI应用板块集体异动。<br><br> | 来源：<code>https://jiujiujiujiu.com.cn
+</code></p><br><br><h3>基金公司集体到访消费电子龙头，苹果新品备货量曝光</h3><br><p>邮轮旅游市场重启，上半年国际邮轮订单同比增长300%。<br><br> | 来源：<code>https://jiujiumianfeishipin.com.cn
+</code></p><br><br><h3>药明康德CXO全球布局：全球医药研发外包的龙头价值</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>https://jiujiure.com.cn
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划。<br><br> | 来源：<code>https://jiujiuri.com.cn
+</code></p><br><br><h3>奥地利经济复苏，旅游业和制造业双回暖</h3><br><p>5年期LPR超预期下调，房企融资环境边际改善。<br><br> | 来源：<code>https://jiujiuse.com.cn
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>逆向投资不是盲目抄底：在行业逻辑反转时布局，胜率才最高。<br><br> | 来源：<code>https://jiujiuxiaoshuo.com.cn
+</code></p><br><br><h3>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%</h3><br><p>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心。<br><br> | 来源：<code>https://jiujiuyingshiyingyuan.com.cn
+</code></p><br><br><h3>除草剂价格单月上涨15%，农药龙头盈利修复超预期</h3><br><p>预制菜产业标准出台，预制菜板块走强。<br><br> | 来源：<code>https://jiujiuyiren.com.cn
+</code></p><br><br><h3>中韩经贸合作升级，双边自贸协定第二阶段谈判完成</h3><br><p>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒。<br><br> | 来源：<code>https://jiujiuzaixian.com.cn
+</code></p><br><br><h3>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起</h3><br><p>大秦铁路煤炭运输优势：重载铁路龙头的稳定现金流。<br><br> | 来源：<code>https://jiujiuzaixianguankan.com.cn
+</code></p><br><br><h3>全国体育场馆免费或低收费开放，年接待群众超10亿人次</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://jiujiuzaixianshipin.com.cn
+</code></p><br><br><h3>许继电气特高压订单落地，单季业绩预告超预期</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>https://jiulifanzaixiankan.com.cn
+</code></p><br><br><h3>海康威视企稳回升，AI安防赛道需求逐步回暖</h3><br><p>三亚亚特兰蒂斯暑期日均客流超3万，水世界项目一票难求。<br><br> | 来源：<code>https://jiuqugan.cn
+</code></p><br><br><h3>多地发放亿元文旅消费券，直接带动消费超30亿</h3><br><p>产业基金组团调研后集中增持氢能储运龙头，合计投入超5亿。<br><br> | 来源：<code>https://jiuqusese.cn
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本。<br><br> | 来源：<code>https://jiusedaohang.com.cn
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>政策性降息支持汽车消费，新能源汽车板块迎来定向利好。<br><br> | 来源：<code>https://jiuxian-lawang-app.com
+</code></p><br><br><h3>“双减”成效显著，校外违规培训机构清零率超98%</h3><br><p>海尔智家稳步上行，白电行业格局持续优化。<br><br> | 来源：<code>https://jiuyou-sports-go.com.cn
+</code></p><br><br><h3>中国乒乓球队包揽世乒赛全部金牌，统治力延续数十年</h3><br><p>新能源赛道集体反弹：动力电池、光伏、储能谁是领涨主线。<br><br> | 来源：<code>https://jixing-paidui-official.com
+</code></p><br><br><h3>美联储连续降息后美元走弱，原油价格迎来趋势性反弹</h3><br><p>企业中长期贷款利率创历史新低，制造业资本开支回升。<br><br> | 来源：<code>https://jizemingbu.com.cn
