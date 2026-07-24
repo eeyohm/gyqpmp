@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿</h3><br><p>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心。<br><br> | 来源：<code>https://jmcomicwangyeban.com.cn
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>https://jmcomiczzzone.com.cn
+</code></p><br><br><h3>机构席位大额买入东方电缆1.8亿，海缆龙头获长线资金布局</h3><br><p>贵州茅台站稳1700元关口，白酒板块估值修复开启。<br><br> | 来源：<code>https://jmmanhua.com.cn
+</code></p><br><br><h3>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌</h3><br><p>平遥古城暑期游客量突破150万人次，晋商文化体验游火热。<br><br> | 来源：<code>https://jmtiantangwang.com.cn
+</code></p><br><br><h3>央行宣布全面降准0.5个百分点，释放长期资金超万亿</h3><br><p>央行下调再贷款再贴现利率，小微和三农融资成本下行。<br><br> | 来源：<code>https://jmwangyeban.com.cn
+</code></p><br><br><h3>风电塔筒价格单月上涨6%，风电制造环节盈利改善</h3><br><p>国务院出台6方面24条政策，进一步扩大对外开放。<br><br> | 来源：<code>https://js9001vip-official-login.com
+</code></p><br><br><h3>国内AI服务器出货量上半年同比增长120%，产业链全面爆发</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://k1-sports-trust.com
+</code></p><br><br><h3>百亿级机构组团到访低空经济龙头，低空试飞进展获披露</h3><br><p>全国大学生就业帮扶行动启动，国企新增岗位超80万。<br><br> | 来源：<code>https://kai-sports-live.com.cn
+</code></p><br><br><h3>字节跳动豆包大模型企业版发布，百万企业开启AI办公升级</h3><br><p>阳光电源海外逆变器爆发，前三季度业绩预增110%。<br><br> | 来源：<code>https://kai-yun-tiyu-guan-wang.com.cn
+</code></p><br><br><h3>头部券商到访游戏出海龙头，海外流水增速数据首次公开</h3><br><p>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆。<br><br> | 来源：<code>https://kaiyuan-board-hub.com.cn
+</code></p><br><br><h3>比亚迪Q3销量破百万，业绩预告同比翻倍</h3><br><p>中德经贸论坛举办，双方达成百项合作协议。<br><br> | 来源：<code>https://kaiyuan-qipai-pro.com.cn
+</code></p><br><br><h3>养老服务体系建设政策，养老产业标的全线走强</h3><br><p>中国神华高股息属性：能源龙头的长期配置价值分析。<br><br> | 来源：<code>https://kaiyuan-sports-pro.com.cn
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，冰上项目实力稳固</h3><br><p>自动驾驶大模型落地，城市NOA覆盖全国所有城市道路。<br><br> | 来源：<code>https://kaiyuan-tiyu.com.cn
+</code></p><br><br><h3>科技成长行情延续：AI算力、半导体、光模块的景气度排序</h3><br><p>黎以罗马谈判达成阶段性协议，以军启动南部黎巴嫩撤军。<br><br> | 来源：<code>https://kaiyun-access-pro.com.cn
+</code></p><br><br><h3>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率</h3><br><p>中芯国际放量突破平台，短线多头力量持续增强。<br><br> | 来源：<code>https://kaiyun-com-go.com.cn
+</code></p><br><br><h3>工业硅价格触底反弹15%，光伏硅料成本端压力下降</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://kaiyun-com-hq.com.cn
+</code></p><br><br><h3>全国青少年足球联赛参赛队伍破万支，覆盖百万青少年球员</h3><br><p>央行降准降息组合拳落地，A股市场迎来全面估值修复。<br><br> | 来源：<code>https://kaiyun-com-hub.com.cn
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>荷兰经济避免衰退，服务业支撑经济稳定增长。<br><br> | 来源：<code>https://kaiyun-com-pro.com.cn
+</code></p><br><br><h3>国内AI服务器出货量上半年同比增长120%，产业链全面爆发</h3><br><p>阳光电源异动拉升6.6%，储能逆变器份额全球第一。<br><br> | 来源：<code>https://kaiyun-com-site.com.cn
+</code></p><br><br><h3>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热</h3><br><p>中国女子篮球WNBA选手韩旭率队闯入季后赛，表现惊艳。<br><br> | 来源：<code>https://kaiyun-con-vip.com.cn
