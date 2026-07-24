@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球新能源投资突破2万亿美元，中国占比超40%</h3><br><p>定向降息支持制造业高端化，工业母机板块获定向利好。<br><br> | 来源：<code>cqxsx.cn
+</code></p><br><br><h3>国际黄金价格回升至2100美元/盎司，避险需求再度升温</h3><br><p>全国城市节水型社会建设达标率达85%，用水效率提升。<br><br> | 来源：<code>gmsz.cn
+</code></p><br><br><h3>长电科技先进封装技术：全球封测龙头的份额提升逻辑</h3><br><p>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进。<br><br> | 来源：<code>www.mgyou.com
+</code></p><br><br><h3>央行下调SLF利率，货币政策宽松取向进一步明确</h3><br><p>金风科技异动拉升4.5%，海上风电装机量超预期。<br><br> | 来源：<code>www.zdxtz.com
+</code></p><br><br><h3>恒瑞医药涨超5%，创新药管线进入收获期</h3><br><p>外资持续流入万科A，地产龙头外资持仓占比突破2%。<br><br> | 来源：<code>www.duioo.com
+</code></p><br><br><h3>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励</h3><br><p>能耗双控政策优化，高耗能行业龙头标的走强。<br><br> | 来源：<code>www.zheejia.com
+</code></p><br><br><h3>万科A核心城市去化超预期，单季业绩预告环比改善</h3><br><p>恒瑞医药站稳60日线，中期趋势逐步向好。<br><br> | 来源：<code>www.kingslawfirm.com
+</code></p><br><br><h3>上半年全国城镇新增就业780万人，完成全年目标的70%</h3><br><p>国产航母新进展，军工船舶板块集体异动。<br><br> | 来源：<code>www.longnancun.com
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>全国生物燃料乙醇产能突破500万吨，替代传统化石燃料。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>全球供应链重构加速，东南亚制造业份额持续提升。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>全国湿地保护率达55%，新增国家湿地公园超百个</h3><br><p>央行表态加大逆周期调节，后续仍有降准降息空间。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>全球智能家居市场规模突破1万亿美元，智慧家庭普及。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>金砖国家新开发银行新增贷款规模突破500亿美元</h3><br><p>企业中长期贷款利率创历史新低，制造业资本开支回升。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>城中村改造专项政策，城中村改造标的全线异动</h3><br><p>降准释放资金定向支持基建，基建板块迎来流动性利好。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>钙钛矿光伏组件效率破纪录，新型光伏标的拉升</h3><br><p>固态电池试点线投产，固态电池产业链集体异动。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%</h3><br><p>白酒行业产业政策引导，高端白酒板块集体上涨。<br><br> | 来源：<code>www.seodoc.cn
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>国内低空文旅项目升温，热气球、滑翔伞体验订单同比暴涨。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>百亿私募组团调研碳化硅企业，车规级器件量产线投产</h3><br><p>全球5G用户突破30亿，中国市场占比超一半。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>成都大运会成功举办一周年，赛事遗产带动城市文旅增长</h3><br><p>大模型在航空领域应用，飞行模拟训练效率提升30%。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>全球储能市场规模突破500GWh，新型电力系统建设提速</h3><br><p>多地推出夜间文旅补贴，商户夜间经营成本下降30%。<br><br> | 来源：<code>www.hrnhug.cn
