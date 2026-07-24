@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>深高速放量上涨2.5%，深圳区域路网资产优质</h3><br><p>山东路桥放量上涨3.5%，基建订单持续饱满。<br><br> | 来源：<code>https://caoliuduanshipin.cn
+</code></p><br><br><h3>金砖国家新开发银行新增贷款规模突破500亿美元</h3><br><p>华为盘古大模型行业落地，工业AI板块持续升温。<br><br> | 来源：<code>https://caoliuerweima.cn
+</code></p><br><br><h3>国产航母新进展，军工船舶板块集体异动</h3><br><p>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长。<br><br> | 来源：<code>https://caoliuhuijiadelu.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>粤港澳大湾区政策升级，湾区地产基建标的走强。<br><br> | 来源：<code>https://caoliujishutaolunqu.cn
+</code></p><br><br><h3>露营经济上半年市场规模突破300亿元，精致露营成为新趋势</h3><br><p>亿纬锂能涨超6%，储能业务新增订单持续落地。<br><br> | 来源：<code>https://caoliushe-qu.cn
+</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>荷兰经济避免衰退，服务业支撑经济稳定增长。<br><br> | 来源：<code>https://caoliushe.cn
+</code></p><br><br><h3>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%</h3><br><p>五粮液重回160元，消费板块复苏逻辑逐步验证。<br><br> | 来源：<code>https://caoliushequdizhi.cn
+</code></p><br><br><h3>万科A地产行业格局：龙头房企的抗风险能力与复苏空间</h3><br><p>中国女子网球选手郑钦文闯入美网四强，世界排名升至第三。<br><br> | 来源：<code>https://caoliushequguanwang.cn
+</code></p><br><br><h3>通威股份全产业链成本控制：光伏硅料环节的盈利韧性</h3><br><p>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速。<br><br> | 来源：<code>https://caoliushequjishutaolunqu.cn
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://caoliushequrukou.cn
+</code></p><br><br><h3>中国门球队世锦赛夺得冠军，中老年运动项目国际领先</h3><br><p>中国男子跳高选手跳出2米40，打破尘封28年全国纪录。<br><br> | 来源：<code>https://caoliushequwangzhi.cn
+</code></p><br><br><h3>快递行业监管优化，快递龙头标的全线拉升</h3><br><p>恒瑞医药创新药管线：国内创新药龙头的研发投入回报。<br><br> | 来源：<code>https://caoliushequxinzhizuixinxiaoxi.cn
+</code></p><br><br><h3>全国重点海域入海排污口整治完成，海洋污染源头管控加强</h3><br><p>全国祁连山生态保护修复完成，矿区全部恢复植被覆盖。<br><br> | 来源：<code>https://caoliushequyaoqingma.cn
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务。<br><br> | 来源：<code>https://caoliushequzaixianguankan.cn
+</code></p><br><br><h3>超210家机构到访AI安防龙头，海外政府订单同比大增</h3><br><p>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内。<br><br> | 来源：<code>https://caoliushequzuixin.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>香港高校内地招生扩容500名额，新增大湾区相关特色专业。<br><br> | 来源：<code>https://caoliushequzuixindizhi.cn
+</code></p><br><br><h3>三安光电化合物半导体布局：LED+碳化硅的长期空间</h3><br><p>控股股东耗资4亿增持算力租赁标的，回购注销增厚每股收益。<br><br> | 来源：<code>https://caoliushequzuixinwangzhi.cn
+</code></p><br><br><h3>中原高速异动拉升2.2%，河南路网业务边际改善</h3><br><p>全国扬子鳄野生种群数量突破2万只，野外放归成效显著。<br><br> | 来源：<code>https://caoliushipin.cn
+</code></p><br><br><h3>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://caoliuxinshidai.cn
+</code></p><br><br><h3>全国家电以旧换新政策落地，回收拆解绿色化率达100%</h3><br><p>千禾味业零添加差异化路线：调味品赛道的突围逻辑。<br><br> | 来源：<code>https://caoliuyaoqingma.cn
