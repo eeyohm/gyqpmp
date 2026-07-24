@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分01秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注</h3><br><p>外资机构集中调研种业龙头，转基因商业化落地节奏披露。<br><br> | 来源：<code>https://nuan-nuan-ai-shipin-mianfei.com.cn
+</code></p><br><br><h3>美联储宣布降息25BP，全球权益资产迎来估值修复窗口</h3><br><p>科大讯飞冲高回落，AI算力主线分歧中仍有韧性。<br><br> | 来源：<code>https://nutong.com.cn
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>装配式建筑推广政策，装配式建筑标的全线异动。<br><br> | 来源：<code>https://nuwangtiaojiao.com.cn
+</code></p><br><br><h3>风电并网消纳政策优化，风电运营板块全线走强</h3><br><p>钠离子电池材料价格上涨8%，钠电池产业链盈利优化。<br><br> | 来源：<code>https://nuyouwang.com.cn
+</code></p><br><br><h3>中远海控集运运价反弹，单季业绩预告环比大增</h3><br><p>宝钢股份企稳回升，低位标的的补涨机会分析。<br><br> | 来源：<code>https://oftuun.cn
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎。<br><br> | 来源：<code>https://ou-meirihan.com.cn
+</code></p><br><br><h3>北京马拉松参赛规模扩至3万人，报名人数破50万创新高</h3><br><p>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡。<br><br> | 来源：<code>https://oumei-mv.com.cn
+</code></p><br><br><h3>中国男子足球队U23亚洲杯闯入四强，获得巴黎奥运资格</h3><br><p>全国职业体育俱乐部数量超2000家，联赛体系覆盖全项目。<br><br> | 来源：<code>https://oumeiquyi.com.cn
+</code></p><br><br><h3>北向资金举牌工业机器人龙头，外资持仓创历史新高</h3><br><p>北向资金连续增持养老产业标的，银发经济赛道获外资流入。<br><br> | 来源：<code>https://oumeiwuma.com.cn
+</code></p><br><br><h3>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材</h3><br><p>黄山暑期游客量突破250万人次，山岳景区预约制度优化体验。<br><br> | 来源：<code>https://p-zhan-shipin.com.cn
+</code></p><br><br><h3>全国珍稀濒危植物保护名录更新，超千种植物得到有效保护</h3><br><p>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖。<br><br> | 来源：<code>https://pa-papa.com.cn
+</code></p><br><br><h3>阳光电源逆变器技术：全球逆变器龙头的技术迭代能力</h3><br><p>招商银行零售银行优势：高ROE背后的经营质量解析。<br><br> | 来源：<code>https://paomianfan.com.cn
+</code></p><br><br><h3>中际旭创光模块技术：数通光模块全球龙头的份额逻辑</h3><br><p>国内大模型专利申请量全球第一，占比超60%。<br><br> | 来源：<code>https://paozaiwojiadelamei.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧交通标的，车路协同项目落地节奏</h3><br><p>全面降准叠加定向降息，宽货币向宽信用传导加速。<br><br> | 来源：<code>https://papapazaixianguankan.cn
+</code></p><br><br><h3>普惠小微贷款利率进一步下行，中小微企业盈利改善</h3><br><p>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放。<br><br> | 来源：<code>https://penshui.com.cn
+</code></p><br><br><h3>鸿蒙生态持续升温：相关产业链标的受益顺序解析</h3><br><p>招商银行沿20日均线上行，稳健标的的持仓节奏。<br><br> | 来源：<code>https://pg-elec-hub.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧</h3><br><p>全国消费促进月活动启动，覆盖超百万商家拉动暑期消费。<br><br> | 来源：<code>https://pg-gaming-pro.com.cn
+</code></p><br><br><h3>多地推出“文旅+科技”项目，元宇宙景区落地超100家</h3><br><p>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增。<br><br> | 来源：<code>https://pg-guoji-008.com
+</code></p><br><br><h3>中国男子举重队世锦赛打破5项世界纪录，统治力依旧</h3><br><p>全国黄土高原水土流失治理率达70%，黄河泥沙含量锐减。<br><br> | 来源：<code>https://pg-moniqi-shiwan.com.cn
+</code></p><br><br><h3>中芯国际放量突破平台，短线多头力量持续增强</h3><br><p>散户最容易踩的坑：涨一点就卖，跌一点就割，最后两头亏。<br><br> | 来源：<code>https://pg-sim-online.com.cn
