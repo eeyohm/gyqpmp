@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国演出市场线下消费人次破亿，周边产品营收占比提升</h3><br><p>央行宣布定向降准1个百分点，精准支持普惠金融领域。<br><br> | 来源：<code>https://nanshengcaonusheng.com.cn
+</code></p><br><br><h3>通威股份低位反弹，光伏产业链盈利预期改善</h3><br><p>三一重工全球化布局：工程机械龙头的海外市场拓展。<br><br> | 来源：<code>https://nantong-wang.com.cn
+</code></p><br><br><h3>QFII集中调研乳制品龙头，高端产品占比提升至45%</h3><br><p>梅西领衔阿根廷队来华友谊赛3-1取胜，现场超5万球迷观赛。<br><br> | 来源：<code>https://nantonghucao.com.cn
+</code></p><br><br><h3>北京君正车载存储优势：汽车电子赛道的高景气受益标的</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>https://nantongwangwang.com.cn
+</code></p><br><br><h3>中药配方颗粒政策放开，中药板块集体走强</h3><br><p>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期。<br><br> | 来源：<code>https://nencaowang.com.cn
+</code></p><br><br><h3>知名私募大手笔增持TOPCon电池标的，持仓占比达4%</h3><br><p>服务贸易创新发展试点，服务贸易板块集体上涨。<br><br> | 来源：<code>https://new-19-sports.com.cn
+</code></p><br><br><h3>头部券商到访调味品龙头，渠道库存去化周期数据披露</h3><br><p>大模型在电商领域应用，AI生成商品详情页效率提升10倍。<br><br> | 来源：<code>https://new-850-official.com
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>公募基金集中调研电力现货交易标的，交易系统订单翻倍。<br><br> | 来源：<code>https://new-8x8.com.cn
+</code></p><br><br><h3>头部机构组团到访创新药龙头，核心管线临床三期数据披露</h3><br><p>AI大模型企业启动申购，ToB付费转化率超行业平均水平。<br><br> | 来源：<code>https://new-9191.com.cn
+</code></p><br><br><h3>上半年全国锂电池出口同比增长32%，新能源产品出口亮眼</h3><br><p>房贷利率下限进一步放宽，刚需购房成本大幅下降。<br><br> | 来源：<code>https://new-91cc.com.cn
+</code></p><br><br><h3>吉利汽车放量上涨5.6%，新能源车型占比突破50%</h3><br><p>市场情绪疯狂时要冷静，情绪低迷时要保持信心。<br><br> | 来源：<code>https://new-91cn.com.cn
+</code></p><br><br><h3>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一</h3><br><p>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%。<br><br> | 来源：<code>https://new-91com.com.cn
+</code></p><br><br><h3>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练</h3><br><p>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新。<br><br> | 来源：<code>https://new-91dongman.com.cn
+</code></p><br><br><h3>中芯国际管理层优势：半导体制造龙头的经营效率提升</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>https://new-91mianfei.com.cn
+</code></p><br><br><h3>维生素A价格单月上涨18%，饲料添加剂板块迎来行情</h3><br><p>北向资金单日买入正泰电器4700万，户用光伏龙头获流入。<br><br> | 来源：<code>https://new-91n.com.cn
+</code></p><br><br><h3>万科A异动，地产链政策宽松预期持续升温</h3><br><p>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复。<br><br> | 来源：<code>https://new-91ncom.com.cn
+</code></p><br><br><h3>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧</h3><br><p>金风科技异动拉升4.5%，海上风电装机量超预期。<br><br> | 来源：<code>https://new-91tv.com.cn
+</code></p><br><br><h3>食品质量安全监管优化，头部食品标的拉升</h3><br><p>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径。<br><br> | 来源：<code>https://new-91yingshi.com.cn
+</code></p><br><br><h3>东莞控股放量上涨2.2%，珠三角车流量高增</h3><br><p>全国马术赛事超百场，马术运动从小众走向大众。<br><br> | 来源：<code>https://new-aifengyue.com.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅。<br><br> | 来源：<code>https://new-aiye.net.cn
