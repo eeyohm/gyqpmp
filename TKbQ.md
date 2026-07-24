@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分03秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>国内文创产品市场规模破千亿，故宫文创年营收超20亿。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩</h3><br><p>游资知名席位打板长安汽车2.8亿，整车标的获短线资金热炒。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>西安马拉松开跑，穿越古城墙赛道吸引超3万跑者参与</h3><br><p>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>南京马拉松开跑，选手破3万赛事服务升级体验大幅提升</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>国家发改委出台促消费20条新政，重点支持汽车家电消费</h3><br><p>建立自己的交易体系：没有规则的操作，最终只会被情绪带着走。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>体育旅游市场爆发，上半年马拉松赛事带动旅游消费超百亿</h3><br><p>降准释放资金补充银行流动性，信贷投放能力显著提升。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持光模块企业，合计投入超10亿</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>长白山暑期避暑游热度高，日均接待游客超2万人次</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>政策性降息支持保障性住房建设，保障房产业链受益</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>跨境电商出口高增，跨境电商板块全线爆发</h3><br><p>中德经贸论坛举办，双方达成百项合作协议。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>天合光能放量上涨5.5%，N型组件渗透率持续提升</h3><br><p>全国中华白海豚种群数量突破5000头，近海生态持续改善。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>中国女子排球队奥运资格赛全胜，直通巴黎奥运会</h3><br><p>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界</h3><br><p>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善。<br><br> | 来源：<code>www.3excel.cn
+</code></p><br><br><h3>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍</h3><br><p>西安马拉松开跑，穿越古城墙赛道吸引超3万跑者参与。<br><br> | 来源：<code>zhongyichufang.cn
+</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>muzhien.cn
+</code></p><br><br><h3>隆基绿能成本优势解析：光伏龙头如何持续领跑行业</h3><br><p>许继电气特高压订单落地，单季业绩预告超预期。<br><br> | 来源：<code>jiezhishan.cn
+</code></p><br><br><h3>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流</h3><br><p>中国女子排球队奥运资格赛全胜，直通巴黎奥运会。<br><br> | 来源：<code>qinjin365.cn
+</code></p><br><br><h3>国企改革三年行动收官，央企营收同比增长6.8%</h3><br><p>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张。<br><br> | 来源：<code>siqiyes.cn
+</code></p><br><br><h3>北向资金大幅增持比亚迪，AH股同步获外资加仓</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>siqixue.cn
