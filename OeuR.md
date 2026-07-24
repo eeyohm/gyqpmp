@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分12秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>蔚来汽车毛利率转正，单季业绩预告环比大幅改善</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>https://lang-lang-shipin.com.cn
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>中国围棋选手夺得世界冠军，连续十年保持世界第一。<br><br> | 来源：<code>https://lansexiao.com.cn
+</code></p><br><br><h3>游资知名席位联手买入赛力斯1.4亿，整车标的获资金追捧</h3><br><p>北向资金连续5日加仓贵州茅台，持仓占比创历史新高。<br><br> | 来源：<code>https://lao-qi-wang.com.cn
+</code></p><br><br><h3>人民币汇率阶段性贬值，出口导向型标的异动</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>https://lao-se-ge.com.cn
+</code></p><br><br><h3>被动元器件价格集体上涨，电子板块盈利边际改善</h3><br><p>派能科技户用储能爆发，单季业绩预告超预期。<br><br> | 来源：<code>https://laoliuziyuanku.org.cn
+</code></p><br><br><h3>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道</h3><br><p>中国斯诺克选手闯入世锦赛决赛，创亚洲选手最佳战绩。<br><br> | 来源：<code>https://laosijibumilu.org.cn
+</code></p><br><br><h3>零跑汽车异动拉升7.9%，性价比车型销量爆发</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>https://laosijidaohang.org.cn
+</code></p><br><br><h3>长安汽车放量上涨4.9%，深蓝品牌月销破3万</h3><br><p>央行表态加大逆周期调节，后续仍有降准降息空间。<br><br> | 来源：<code>https://laosijimanhua.org.cn
+</code></p><br><br><h3>机构资金集中买入华域汽车7800万，零部件龙头获抱团</h3><br><p>社保基金现身存储模组龙头，AI存储产品出货量超预期。<br><br> | 来源：<code>https://laosijiyuming.org.cn
+</code></p><br><br><h3>金龙汽车涨超3.6%，新能源客车订单持续落地</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>https://leplayqiumi.com.cn
+</code></p><br><br><h3>全国居民储蓄存款增速放缓，资金向消费和投资领域转移</h3><br><p>保利发展土储优势：核心城市优质土储的长期价值释放。<br><br> | 来源：<code>https://leyusaishi.com.cn
+</code></p><br><br><h3>药明康德全球竞争力研究：CXO赛道的长期成长逻辑</h3><br><p>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势。<br><br> | 来源：<code>https://li-zong-rui.com.cn
+</code></p><br><br><h3>隆基绿能成本优势解析：光伏龙头如何持续领跑行业</h3><br><p>中芯国际单季盈利创历史新高，半导体板块全线走强。<br><br> | 来源：<code>https://liangnuyibei.com.cn
+</code></p><br><br><h3>5年期以上LPR大幅下调20BP，地产链板块全线异动</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>https://liaoheishequ.com.cn
+</code></p><br><br><h3>拓普集团护城河分析：汽车零部件平台型企业的长期价值</h3><br><p>海康威视企稳回升，AI安防赛道需求逐步回暖。<br><br> | 来源：<code>https://liboqiubao.com.cn
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>中国女子足球闯入世界杯四强，创造历史最佳战绩。<br><br> | 来源：<code>https://lidongmanfan.com.cn
+</code></p><br><br><h3>理想汽车单季盈利超20亿，新势力车企业绩超预期</h3><br><p>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划。<br><br> | 来源：<code>https://lifandongmanmanhua.org.cn
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>华为智选新车型发布，相关合作车企单日大涨。<br><br> | 来源：<code>https://lifanzaixianmianfei.com.cn
+</code></p><br><br><h3>养老金新进PCB龙头，布局AI服务器硬件赛道</h3><br><p>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场。<br><br> | 来源：<code>https://limandongman.com.cn
+</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注</h3><br><p>知名私募调研卫星互联网标的，低轨卫星组网计划披露。<br><br> | 来源：<code>https://lishuanger.com.cn
