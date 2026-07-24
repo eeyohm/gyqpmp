@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分08秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>低空经济发展规划出台，低空经济标的拉升</h3><br><p>国家统计局发布新动能指数，同比增长17%创新高。<br><br> | 来源：<code>qiujob.com
+</code></p><br><br><h3>机构资金集中买入华域汽车7800万，零部件龙头获抱团</h3><br><p>AI办公软件渗透率超60%，成为职场人必备工具。<br><br> | 来源：<code>soteam.cn
+</code></p><br><br><h3>国产光刻机交付突破，半导体设备板块全线大涨</h3><br><p>公募基金集中调研智慧交通标的，车路协同项目落地节奏。<br><br> | 来源：<code>shadowrobot.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%。<br><br> | 来源：<code>shzhonglv.cn
+</code></p><br><br><h3>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置</h3><br><p>大模型在餐饮领域应用，AI智能配菜优化食材利用率。<br><br> | 来源：<code>guoguangjixie.cn
+</code></p><br><br><h3>中国围棋选手夺得世界冠军，连续十年保持世界第一</h3><br><p>全国工业余热利用项目大规模落地，年节能超千万吨标准煤。<br><br> | 来源：<code>bieyao.cn
+</code></p><br><br><h3>中国女排世界联赛总决赛夺冠，重返世界第一排名</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业。<br><br> | 来源：<code>ykyxz.cn
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>尾矿资源综合利用政策，尾矿回收板块走强</h3><br><p>CBA联赛总决赛收视率创新高，本土球员表现亮眼。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>钾肥价格连续上涨10%，钾肥板块盈利弹性释放</h3><br><p>箱板纸价格上涨5%，包装产业链盈利改善。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>全国徒步大会覆盖300城，参与人次破千万</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>江苏建工放量上涨3.3%，江苏区域基建投资回暖。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>深股通席位单日买入海天味业6100万，调味品标的增持。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>上半年全国社会物流总额同比增长5.6%，物流运行效率提升</h3><br><p>药明康德单日涨超5%，CXO板块迎来情绪拐点。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>存款利率市场化改革深化，银行负债成本持续优化</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>全国小微企业贷款余额突破60万亿元，融资成本进一步下降</h3><br><p>央行降准降息组合拳落地，A股市场迎来全面估值修复。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>算力需求持续高增：IDC、光模块、服务器的产业链机会</h3><br><p>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>中超联赛第20轮，上海申花6-0大胜对手稳居积分榜榜首</h3><br><p>全国夜间文旅消费集聚区破200个，点亮城市夜经济。<br><br> | 来源：<code>www.siqixue.cn
