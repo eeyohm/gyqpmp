@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分09秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>武夷山暑期游客量突破180万人次，茶旅融合发展成效显著</h3><br><p>多地景区推出“一票通”联票，覆盖周边十余景点让利游客。<br><br> | 来源：<code>https://fanhao-ku.com.cn
+</code></p><br><br><h3>乡村振兴政策加码，农业农村板块集体上涨</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://feifan-ent-pro.com.cn
+</code></p><br><br><h3>高管团队集体增持短视频出海标的，合计增持超9000万</h3><br><p>中国女子摔跤队世锦赛包揽全部金牌，统治力无人能及。<br><br> | 来源：<code>https://feiji-bei.com.cn
+</code></p><br><br><h3>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期</h3><br><p>南京马拉松开跑，选手破3万赛事服务升级体验大幅提升。<br><br> | 来源：<code>https://feilubin-chire-zhi-ye-dianying.com.cn
+</code></p><br><br><h3>千兆城市建设全覆盖，光通信板块走强</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>https://feixiongbaozangku.com.cn
+</code></p><br><br><h3>产业链产品涨价类（100个）</h3><br><p>全国城市慢行系统建设提速，绿道总里程突破15万公里。<br><br> | 来源：<code>https://feng-jian-you-mei.com.cn
+</code></p><br><br><h3>人工智能产业标准落地，AI合规标的全线异动</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>https://feng-jian.com.cn
+</code></p><br><br><h3>比亚迪全产业链布局分析：从电池到整车的协同优势</h3><br><p>全国旅游厕所建设完成，所有景区实现第三卫生间全覆盖。<br><br> | 来源：<code>https://fenghuangsaishi.com.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>机构专用席位净买入隆基绿能6亿，光伏龙头获长线资金布局。<br><br> | 来源：<code>https://fenglouxinxi.cn
+</code></p><br><br><h3>美联储降息预期升温，全球权益资产联动走强</h3><br><p>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域。<br><br> | 来源：<code>https://fengyuling.com.cn
+</code></p><br><br><h3>广汽集团埃安盈利转正，前三季度业绩预增超45%</h3><br><p>全国城市慢行系统建设提速，绿道总里程突破15万公里。<br><br> | 来源：<code>https://free-zaixian-cheng-web.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://fujianu-jiejie-weiba-dongman.com.cn
+</code></p><br><br><h3>泰胜风能涨超5.0%，海外风电塔架出口爆发</h3><br><p>北向资金单日买入正泰电器4700万，户用光伏龙头获流入。<br><br> | 来源：<code>https://fuli-ba.cn
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善。<br><br> | 来源：<code>https://fuli-daohang.com.cn
+</code></p><br><br><h3>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑</h3><br><p>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生。<br><br> | 来源：<code>https://fuli-ji.com.cn
+</code></p><br><br><h3>通用人工智能创新平台落地，大模型标的拉升</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>https://fuli-shipin.cn
+</code></p><br><br><h3>宝钢股份绿色低碳优势：钢铁行业碳中和下的领先地位</h3><br><p>海大集团研发体系：水产饲料配方技术的持续迭代能力。<br><br> | 来源：<code>https://fulidaohang.cn
+</code></p><br><br><h3>QFII集中调研乳制品龙头，高端产品占比提升至45%</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>https://fulidaohang.com.cn
+</code></p><br><br><h3>全国工业企业利润同比增长8.7%，盈利水平持续修复</h3><br><p>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先。<br><br> | 来源：<code>https://fulidaohang.org.cn
+</code></p><br><br><h3>天津建投异动拉升2.8%，天津基建投资持续增长</h3><br><p>游资知名席位联手买入中微公司1.3亿，刻蚀设备标的追捧。<br><br> | 来源：<code>https://fulidaohangwang.cn
