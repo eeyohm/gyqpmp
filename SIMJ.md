@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>洛阳推出“汉服游”配套服务，全城汉服租赁店超千家。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>浙江建投区域基建优势：浙江基建龙头的区域资源壁垒。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>中国神华煤炭量价齐升，前三季度业绩预增超15%</h3><br><p>建筑光伏一体化政策，BIPV标的全线拉升。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>北向资金单日买入福耀玻璃7200万，玻璃龙头获外资持续流入</h3><br><p>长安汽车新能源盈利转正，单季净利润同比增200%。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>招商银行财富管理优势：零售银行龙头的第二增长曲线</h3><br><p>央行宣布全面降准0.5个百分点，释放长期资金超万亿。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>中国女足亚洲杯夺冠，时隔16年重回亚洲之巅</h3><br><p>中国举重队世锦赛打破12项世界纪录，优势项目持续领先。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>AI办公软件渗透率超60%，成为职场人必备工具</h3><br><p>国内AI生成短视频用户破5亿，短视频行业迎来生产变革。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>AI应用落地加速：办公、安防、教育的商业化机会</h3><br><p>华为智选新车型发布，相关合作车企单日大涨。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼</h3><br><p>实控人溢价25%增持电力现货交易标的，传递价值低估信号。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>中国神华煤炭量价齐升，前三季度业绩预增超15%</h3><br><p>交控科技异动拉升4.5%，城轨信号系统订单爆发。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>石大胜华溶剂技术优势：锂电溶剂细分赛道的龙头价值</h3><br><p>全国碳排放强度同比下降4.2%，提前完成"十四五"减排目标。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>重庆建工涨超3.2%，西部基建投资持续加码</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>云南建投放量上涨3.4%，南亚基建订单落地加速</h3><br><p>当升科技涨超5.1%，正极材料海外订单增长。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>燃料电池汽车示范应用，燃料电池标的全线异动</h3><br><p>游资知名席位联手买入登海种业5600万，种业标的获追捧。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>陕西建工异动拉升3.5%，西北基建订单持续落地</h3><br><p>宁德时代动力电池技术：麒麟电池+M3P的技术领先性。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>哪吒汽车涨超7.3%，下沉市场份额持续提升</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>北方稀土异动拉升，稀土永磁行业供需格局优化</h3><br><p>上半年全国居民消费支出同比增长7.3%，服务消费占比提升。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>金风科技异动拉升4.5%，海上风电装机量超预期。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>三安光电涨超4.2%，LED芯片需求边际改善。<br><br> | 来源：<code>www.bjgengke.com
