@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>机构席位大额买入四川路桥1.3亿，区域基建龙头获长线布局</h3><br><p>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>北向资金连续加仓保利发展，央企地产获外资持续布局</h3><br><p>陕西煤业高股息兑现，单季业绩预告超预期。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>中国平安寿险新业务价值大增，业绩预告超预期。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>政策性降息支持汽车消费，新能源汽车板块迎来定向利好</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>国内AI伦理规范发布，引导大模型健康有序发展</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>洋河股份异动拉升4.0%，梦之蓝系列动销超预期</h3><br><p>储能装机强制配比政策升级，储能产业链标的拉升。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>中国门球队世锦赛夺得冠军，中老年运动项目国际领先</h3><br><p>沪股通席位单日买入美的集团2.1亿，家电龙头获外资增持。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>地震应急响应升级，灾后重建板块异动</h3><br><p>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>杭州马拉松开跑，3.5万跑者体验钱塘江赛道</h3><br><p>储能行业需求爆发：产业链上下游的景气度传导逻辑。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>中国跳水队世锦赛包揽全部13金，延续梦之队统治力</h3><br><p>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>全国研究生考试报名人数首次回落，就业导向成为报考主流</h3><br><p>钠离子电池实现装车应用，钠电池产业链全线爆发。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>银保监会出台新政，进一步降低实体经济融资成本</h3><br><p>全球农业科技市场规模突破3000亿美元，智慧农业普及。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>6G技术研发推进计划，通信设备板块全线异动</h3><br><p>呼吸道疾病高发，儿科医药板块集体上涨。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>全国校园足球特色校破2万，青少年足球人才储备加厚</h3><br><p>国产动画电影票房上半年突破80亿元，国漫IP影响力扩大。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>外资机构席位净买入恒瑞医药2.4亿，创新药龙头获外资加仓</h3><br><p>存量房贷利率批量下调，银行板块短期冲击可控。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>全国房地产开发投资降幅收窄，市场预期逐步企稳</h3><br><p>深股通席位单日买入金龙汽车4300万，客车标的获增持。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>世界文化遗产新增2处，我国世遗总数增至60处。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>全国城镇调查失业率降至4.8%，就业形势保持总体稳定</h3><br><p>许继电气异动拉升4.2%，特高压订单持续落地。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>全国营商环境评价排名发布，一线城市整体进入全球第一梯队</h3><br><p>东方财富互联网券商优势：流量变现的长期成长空间。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>云南泼水节暑期活动重启，单日参与游客突破50万人次</h3><br><p>北方稀土行业地位：稀土全产业链龙头的政策红利。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>www.fm1033.cn
