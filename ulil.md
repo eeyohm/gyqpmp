@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>荷兰经济避免衰退，服务业支撑经济稳定增长</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>大模型在零售领域应用，AI智能选品准确率提升25%。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>法律大模型上线，AI辅助律师办案效率提升2倍</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>多地推出夜间文旅补贴，商户夜间经营成本下降30%</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>央行降准0.5个百分点，释放长期资金超1万亿元支持实体经济</h3><br><p>机构资金联手买入洽洽食品5800万，食品龙头获机构抱团。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>国内老年文旅市场升温，银发游订单同比增长70%</h3><br><p>机构+北向合力买入思源电气5200万，电网设备标的布局。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>QFII集中调研快递物流龙头，单票盈利创历史新高</h3><br><p>广深铁路放量上涨3.1%，铁路客运收入回暖。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>中国围棋AI算法登顶世界，人工智能助力棋类运动发展</h3><br><p>新型电力系统建设规划，电力设备板块走强。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国营商环境评价排名发布，一线城市整体进入全球第一梯队</h3><br><p>中航沈飞涨超4.7%，军机交付进度超市场预期。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>液态奶价格上涨3%，乳制品板块迎来涨价催化</h3><br><p>中国垒球队获得亚运会银牌，项目普及度快速提升。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全面降准叠加定向降息，宽货币向宽信用传导加速</h3><br><p>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>知名私募举牌MR产业链标的，调研后直接大额扫货</h3><br><p>疫情新变种出现，医药防护板块集体走强。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升</h3><br><p>上半年全国汽车出口突破230万辆，连续3年位居全球第一。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>中远海控异动拉升3.3%，集运运价阶段性反弹</h3><br><p>冷链物流扶持政策，冷链物流板块集体上涨。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>券商研究所扎堆调研智能电网标的，特高压设备中标数据</h3><br><p>上半年全国社会物流总额同比增长5.6%，物流运行效率提升。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>头部券商到访家电出海龙头，海外自主品牌占比突破40%</h3><br><p>全国青少年足球联赛参赛队伍破万支，覆盖百万青少年球员。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>雄安新区建设新进展，雄安基建标的集体异动</h3><br><p>宠物友好景区数量破千，携宠出游成为家庭消费新选择。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>大模型在零售领域应用，AI智能选品准确率提升25%</h3><br><p>中国平安涨超3.4%，寿险新业务价值增速转正。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>欧元区经济走出衰退，二季度GDP环比增长0.3%</h3><br><p>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>www.trqgzc.com
