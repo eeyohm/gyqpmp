@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国储能装机容量突破3亿千瓦，新型储能占比超60%</h3><br><p>新能源汽车换电模式推广政策，换电产业链拉升。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>AI视频修复技术普及，老电影4K修复效率提升10倍</h3><br><p>知名私募调研钙钛矿设备标的，核心设备交付周期缩短。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>东方电气风电设备订单爆发，前三季度业绩预增超35%</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业</h3><br><p>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>结构性降息精准支持制造业，高端制造板块获定向利好</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>全国煤化工行业低碳改造完成，碳排放强度下降20%</h3><br><p>新能源汽车换电模式推广政策，换电产业链拉升。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>安琪酵母放量上涨3.6%，海外市场拓展超预期</h3><br><p>中国中车异动拉升，一带一路订单持续释放。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>美联储降息预期升温，全球权益资产联动走强。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才</h3><br><p>梅西领衔阿根廷队来华友谊赛3-1取胜，现场超5万球迷观赛。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善</h3><br><p>苹果AI服务正式上线，苹果产业链标的集体反弹。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>海参价格单月上涨18%，海产养殖龙头盈利提升。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>洋河股份异动拉升4.0%，梦之蓝系列动销超预期</h3><br><p>涪陵榨菜异动拉升3.8%，产品提价传导顺利。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>药明康德异动拉升5.2%，海外新药订单持续落地</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>恩捷股份隔膜份额提升，单季业绩预告超预期</h3><br><p>实控人溢价20%增持氢能龙头，传递公司价值被低估信号。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>快递行业监管优化，快递龙头标的全线拉升</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑</h3><br><p>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>全球农业科技市场规模突破3000亿美元，智慧农业普及</h3><br><p>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓</h3><br><p>实控人承诺6个月内不减持机器人控制器标的，稳定股价。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>大模型在文创领域应用，AI生成剧本、音乐成行业常态。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>东方雨虹建材需求回暖，前三季度业绩预增超25%。<br><br> | 来源：<code>www.bjgengke.com
