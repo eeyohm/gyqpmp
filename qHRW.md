@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分53秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>10年期国债收益率下行至2.5%以下，权益资产吸引力提升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>头部机构组团到访医美耗材龙头，新品获批进度超预期</h3><br><p>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>兆易创新存储芯片价格反弹，前三季度业绩预增超70%</h3><br><p>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>机构专用席位净买入隆基绿能6亿，光伏龙头获长线资金布局</h3><br><p>游资顶级席位打板亨通光电5400万，海缆标的获热炒。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>韦尔股份CIS芯片布局：图像传感器行业的周期与成长。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>南京夫子庙暑期客流超2000万，秦淮夜游营收同比翻倍</h3><br><p>全国青少年体育赛事覆盖所有项目，参赛人次突破千万。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>智能网联汽车准入试点落地，车路协同标的拉升</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒</h3><br><p>全国汽车拉力赛超20站，赛车运动爱好者规模破百万。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅</h3><br><p>哈尔滨冰雪旅游提前预热，暑期冰雪乐园订单同比增长80%。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>全球文化产业规模突破2.5万亿美元，数字文化占比提升</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入</h3><br><p>时间是优秀企业的朋友：陪伴好公司成长，远比做短线暴利靠谱。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>全球氢能产业投资突破5000亿美元，商业化进程加速</h3><br><p>天邦食品涨超4.1%，养殖业务减亏效果显著。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流</h3><br><p>储能装机强制配比政策升级，储能产业链标的拉升。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化</h3><br><p>全国江豚种群数量突破2000头，长江微笑天使重现。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>赣锋锂业突破20日线，短期反弹窗口开启</h3><br><p>万科A异动拉升，地产链反弹的关键位与风控思路。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>上合组织峰会召开，新增3个成员国组织规模进一步扩大</h3><br><p>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>央行表态保持流动性合理充裕，后续政策工具储备充足</h3><br><p>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>CBA总决赛辽宁队4-1夺冠，实现三连冠建立王朝</h3><br><p>北向资金大额增持美的集团，家电龙头外资持仓创历史新高。<br><br> | 来源：<code>www.chtea.ac.cn
