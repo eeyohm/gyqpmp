@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分34秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>百亿私募组团调研6G通信企业，技术试验进度超市场预期。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，冰上项目实力稳固</h3><br><p>美联储降息25BP符合市场预期，全球股市迎来普涨行情。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>亿纬锂能放量上涨6.4%，储能电池出货量翻倍</h3><br><p>上汽集团海外市场布局：传统车企出口的长期增长逻辑。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>保利发展央企销售高增，前三季度业绩预增超20%</h3><br><p>北向资金连续加仓通威股份，光伏龙头获外资长线布局。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>全国攀岩联赛覆盖20城，攀岩运动成年轻人新宠</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>大模型在教育测评领域应用，自动批改作文准确率超教师</h3><br><p>生活用纸价格上调4%，生活用纸龙头盈利提升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>三一重工突破半年线，中期趋势逐步转强</h3><br><p>东方电气氢能布局：能源装备龙头的第二成长曲线解析。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>保利发展央企地产优势：融资成本与资源获取的双重优势</h3><br><p>煤层气开发利用政策，煤层气标的全线拉升。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务</h3><br><p>全面降准0.5个百分点，银行信贷投放能力大幅提升。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升</h3><br><p>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>粤港澳大湾区政策升级，湾区地产基建标的走强</h3><br><p>阳光电源逆变器技术：全球逆变器龙头的技术迭代能力。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>中通客车异动拉升4.1%，海外市场拓展加速</h3><br><p>创新药医保谈判落地，创新药板块迎来情绪修复。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国体育场馆免费或低收费开放，年接待群众超10亿人次</h3><br><p>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>明阳智能涨超4.8%，大兆瓦风机份额持续提升</h3><br><p>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>算力需求持续高增：IDC、光模块、服务器的产业链机会</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>春节档票房创历史新高，影视传媒板块集体走强</h3><br><p>稀土永磁政策红利：行业供需格局优化下的投资机会。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>海大集团研发体系：水产饲料配方技术的持续迭代能力</h3><br><p>公募基金集中调研电力现货交易标的，交易系统订单翻倍。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>隆基绿能底部抬升，上升通道内的低吸窗口显现</h3><br><p>半导体国产替代推进：制造、设备、材料的突破路径。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>全国夜间经济规模上半年突破18万亿元，成为消费新增长点</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>贵州茅台站稳1700元关口，白酒板块估值修复开启</h3><br><p>郑钦文闯入温网女单决赛，创中国网球选手大满贯单打最佳战绩。<br><br> | 来源：<code>www.qianfangdiy.cn
