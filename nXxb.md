@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分41秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>成都大运会成功举办一周年，赛事遗产带动城市文旅增长</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>https://9570-jinguan-zhijia.com
+</code></p><br><br><h3>成渝双城经济圈政策加码，成渝板块标的全线上涨</h3><br><p>新能源金属需求回暖：钴、锂、镍的行情持续性对比。<br><br> | 来源：<code>https://9570-login-home.com
+</code></p><br><br><h3>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>https://aaarihan.cn
+</code></p><br><br><h3>全国徒步大会覆盖300城，参与人次破千万</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>https://aaawang.com.cn
+</code></p><br><br><h3>生猪收储政策启动，养殖板块迎来反弹催化</h3><br><p>美联储降息后大宗商品集体上涨，有色板块全线异动。<br><br> | 来源：<code>https://ai-ai-shipin-wangzhan.com.cn
+</code></p><br><br><h3>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入</h3><br><p>机构席位大额买入德业股份5300万，储能龙头获长线布局。<br><br> | 来源：<code>https://ai-aishipin.com.cn
+</code></p><br><br><h3>车规级芯片国产替代加速，汽车半导体板块走强</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://ai-fengyue.com.cn
+</code></p><br><br><h3>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善</h3><br><p>多地景区推出免票政策，国有A级景区免票覆盖超300家。<br><br> | 来源：<code>https://ai-weinai.com.cn
+</code></p><br><br><h3>全国国家公园数量增至15个，保护面积超23万平方公里</h3><br><p>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧。<br><br> | 来源：<code>https://ai-weinaizaixian.cn
+</code></p><br><br><h3>亨通光电海缆业务放量，前三季度业绩预增超45%</h3><br><p>意大利经济增速超预期，旅游业拉动经济强劲增长。<br><br> | 来源：<code>https://aiaiwang.net.cn
+</code></p><br><br><h3>璞泰来负极材料盈利改善，前三季度业绩预增超40%</h3><br><p>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升。<br><br> | 来源：<code>https://aigei.net.cn
+</code></p><br><br><h3>阳光电源涨超7%，逆变器海外订单持续超预期</h3><br><p>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新。<br><br> | 来源：<code>https://aiqing-daodujia.org.cn
+</code></p><br><br><h3>文化纸价格单月上涨6%，纸企盈利边际改善</h3><br><p>宁夏沙坡头暑期沙漠游热度高，日均接待游客超3万人次。<br><br> | 来源：<code>https://aiqing-daodujialuntan.org.cn
+</code></p><br><br><h3>中国女子自行车队世锦赛场地赛夺冠，实现金牌突破</h3><br><p>保险资管举牌机器人减速器标的，核心零部件获机构重仓。<br><br> | 来源：<code>https://aiqing-daowangzhan.org.cn
+</code></p><br><br><h3>全国淮河生态经济带建设推进，流域水质优良比例达95%</h3><br><p>上半年全国新能源汽车电池出口同比增长40%。<br><br> | 来源：<code>https://aiqing-daoyazhou.org.cn
+</code></p><br><br><h3>许继电气特高压订单落地，单季业绩预告超预期</h3><br><p>五粮液品牌与渠道优势：浓香型白酒龙头的护城河解析。<br><br> | 来源：<code>https://aiqing-daoyuming.org.cn
+</code></p><br><br><h3>全国矿山生态修复面积年度完成超2万公顷，废弃矿山变绿洲</h3><br><p>职业教育法实施一周年，新增100所应用型技术大学。<br><br> | 来源：<code>https://aiqingdao-web.com.cn
+</code></p><br><br><h3>万科A异动，地产链政策宽松预期持续升温</h3><br><p>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张。<br><br> | 来源：<code>https://aiqingdao.org.cn
+</code></p><br><br><h3>降准资金定向支持半导体产业，芯片板块获流动性利好</h3><br><p>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东。<br><br> | 来源：<code>https://aiqingdaodujia.org.cn
+</code></p><br><br><h3>机构资金联手买入明阳智能1.2亿，风机龙头获机构抱团</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https://aiqingdaodujialuntan.org.cn
