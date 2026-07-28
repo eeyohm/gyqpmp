@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宇通客车全球客车龙头优势：新能源客车的全球份额扩张</h3><br><p>AI应用落地加速：办公、安防、教育的商业化机会。<br><br> | 来源：<code>https://app-by-sports.com.cn
+</code></p><br><br><h3>明阳智能大兆瓦风机放量，单季业绩预告超预期</h3><br><p>全国游泳冠军赛落幕，多名小将打破全国纪录。<br><br> | 来源：<code>https://app-ml-tiyu.com.cn
+</code></p><br><br><h3>泸州老窖品牌升级：国窖1573的高端化成长路径解析</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>https://aqdav.org.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>中通客车异动拉升4.1%，海外市场拓展加速。<br><br> | 来源：<code>https://ba-geheiliao.com.cn
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>保险资管扎堆调研机器人减速器标的，产能释放进度披露。<br><br> | 来源：<code>https://bachabacha.com.cn
+</code></p><br><br><h3>醋产品价格上调6%，食醋板块盈利改善</h3><br><p>全国企业债券发行规模上半年达3.5万亿元，直接融资占比提升。<br><br> | 来源：<code>https://bafuli.com.cn
+</code></p><br><br><h3>地方国资战略入股卫星互联网标的，助力星座组网建设</h3><br><p>极端暴雨灾害预警，水利基建标的全线上涨。<br><br> | 来源：<code>https://bageheiliao.com.cn
+</code></p><br><br><h3>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善</h3><br><p>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大。<br><br> | 来源：<code>https://bageheiliao.org.cn
+</code></p><br><br><h3>酸奶产品价格上调4%，乳业细分板块盈利提升</h3><br><p>西安兵马俑暑期日均客流超7万，智慧分流系统提升游览体验。<br><br> | 来源：<code>https://bai-si.com.cn
+</code></p><br><br><h3>大模型在农业病虫害防治领域应用，减少农药使用20%</h3><br><p>外资机构席位净买入中国电建1.1亿，绿电运营龙头获外资加仓。<br><br> | 来源：<code>https://baicaiba-bocai-bbs.com
+</code></p><br><br><h3>全国红色旅游暑期人次破3亿，年轻人占比超60%</h3><br><p>金龙汽车涨超3.6%，新能源客车订单持续落地。<br><br> | 来源：<code>https://baihe-hui.com.cn
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>全国船舶排放控制区扩大，海运污染减排成效突出。<br><br> | 来源：<code>https://baihubi.org.cn
+</code></p><br><br><h3>江苏建工放量上涨3.3%，江苏区域基建投资回暖</h3><br><p>中微公司放量拉升6.2%，刻蚀设备订单持续落地。<br><br> | 来源：<code>https://baihuluoli.com.cn
+</code></p><br><br><h3>外资持续流入万科A，地产龙头外资持仓占比突破2%</h3><br><p>科大讯飞冲高回落，AI算力主线分歧中仍有韧性。<br><br> | 来源：<code>https://baihuziwei.com.cn
+</code></p><br><br><h3>招商银行净息差企稳，前三季度业绩预增超15%</h3><br><p>国内降息政策出台，地产链标的集体上涨。<br><br> | 来源：<code>https://baisijk.com.cn
+</code></p><br><br><h3>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>https://baisijkbaihu.com.cn
+</code></p><br><br><h3>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入</h3><br><p>医美行业合规化政策，头部医美标的拉升。<br><br> | 来源：<code>https://baisijurumeinu.com.cn
+</code></p><br><br><h3>高管团队集体增持智慧交通标的，合计增持金额超1.2亿</h3><br><p>山东高速放量上涨2.7%，路网资产盈利稳健。<br><br> | 来源：<code>https://baisiluoli.com.cn
+</code></p><br><br><h3>AI音乐生成工具普及，原创音乐产出效率提升10倍</h3><br><p>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升。<br><br> | 来源：<code>https://baleshipinwuwuzaixianguankan.cn
+</code></p><br><br><h3>儿童用药扶持政策，儿科医药标的全线拉升</h3><br><p>先导智能技术积累：锂电设备全球龙头的核心竞争力。<br><br> | 来源：<code>https://bandao-sports-pro.com.cn
